@@ -16,7 +16,7 @@ You will find more than 500 flairs available to pick here, organized by class an
 | [![Image](https://i.imgur.com/LbsxHL3.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=e-S1+%0D) [![Image](https://i.imgur.com/PUviAeR.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=e-S2+%0D) | [![Image](https://i.imgur.com/VCriVvM.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=ef-S1+%0D) |
 | [![Image](https://i.imgur.com/GqGxIFx.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=e-M1+%0D) [![Image](https://i.imgur.com/2vxlSL8.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=e-M2+%0D) | [![Image](https://i.imgur.com/NdEBe3x.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=ef-M1+%0D) |
 
-# Saber 
+# Sader 
 ![Image](https://i.imgur.com/VdKOKpc.gif)
 
 | Original  | Riyo |
@@ -95,7 +95,7 @@ You will find more than 500 flairs available to pick here, organized by class an
 | [![Image](https://i.imgur.com/FEm5AHi.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=h-31+%0D) [![Image](https://i.imgur.com/6lb5OTR.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=h-32+%0D) [![Image](https://i.imgur.com/bCnVaD6.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=h-33+%0D) [![Image](https://i.imgur.com/Go3NX1h.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=h-34+%0D) [![Image](https://i.imgur.com/0Fnnph7.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=h-35+%0D) [![Image](https://i.imgur.com/hwQxiqq.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=h-36+%0D) | | 
 | [![Image](https://i.imgur.com/loh3l6B.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=h-37+%0D) [![Image](https://i.imgur.com/rIe2HQQ.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=h-38+%0D) [![Image](https://i.imgur.com/BdtpViV.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=h-39+%0D) [![Image](https://i.imgur.com/UXrY3aG.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=h-40+%0D) | | 
 
-### Berderker
+# Berderker
 ![Image](https://i.imgur.com/fxBqcSt.gif)
 
 | Original  | Riyo |
@@ -107,7 +107,7 @@ You will find more than 500 flairs available to pick here, organized by class an
 | [![Image](https://i.imgur.com/a5rx72B.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=b-25+%0D) [![Image](https://i.imgur.com/qSTTTeh.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=b-26+%0D) [![Image](https://i.imgur.com/PEKunom.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=b-27+%0D) [![Image](https://i.imgur.com/OLxIlyi.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=b-28+%0D) [![Image](https://i.imgur.com/2ULC6XM.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=b-30+%0D) [![Image](https://i.imgur.com/FLLoTJY.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=b-29+%0D) | |
 | [![Image](https://i.imgur.com/udrxXsv.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=b-31+%0D) [![Image](https://i.imgur.com/AK47TZ4.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=b-32+%0D) [![Image](https://i.imgur.com/gg62cAA.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=b-33+%0D) | |  
 
-### Extra Der
+# Extra Der
 ![Image](https://i.imgur.com/skHmsgK.gif)
 
 | Class | Original  | Riyo |
@@ -120,7 +120,7 @@ You will find more than 500 flairs available to pick here, organized by class an
 | Foreigner | [![Image](https://i.imgur.com/IT9LYQb.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=e-F1+%0D) [![Image](https://i.imgur.com/uvvKocv.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=e-F2+%0D) [![Image](https://i.imgur.com/G7puLo9.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=e-F3+%0D) [![Image](https://i.imgur.com/KMv1MmN.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=e-F4+%0D) [![Image](https://i.imgur.com/71FGLCu.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=e-F5+%0D) [![Image](https://i.imgur.com/RivsaJj.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=e-F6+%0D) [![Image](https://i.imgur.com/muRvA5e.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=e-F7+%0D) [![Image](https://i.imgur.com/suocrV4.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=e-F8+%0D) | [![Image](https://i.imgur.com/WA2gYDd.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=ef-F1+%0D) [![Image](https://i.imgur.com/noVKzAJ.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=ef-F2+%0D) [![Image](https://i.imgur.com/v2pr9IW.png)](https://old.reddit.com/message/compose?to=Holmes_Flairbot&subject=flairbot&message=ef-F3+%0D) |
 
  
-### Miscellader
+# Miscellader
 ![Image](https://i.imgur.com/H6Hqoz6.gif)
 
 | Category  | Flair |
